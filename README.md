@@ -1,3 +1,3 @@
-# Welcome to Alien Sciences
+# 🚧 UNDER CONSTRUCTION 🚧
 
-This place is under construction.
+Welcome to Alien Sciences! This place is under construction. Perhaps forever.
